@@ -1,0 +1,1 @@
+# tecnika_course
